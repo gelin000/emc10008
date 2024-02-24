@@ -4,8 +4,8 @@
 
 ### EMC易倍体育-永不失联:  [PC官网](https://jnsk10.com)
                         jnsk10.com
-### EMC易倍体育-永不失联:  [H5官网](tx6dj.com)
-### EMC易倍体育-永不失联:  [APP下载](txdk8.com)
+### EMC易倍体育-永不失联:  [H5官网](https://tx6dj.com)
+### EMC易倍体育-永不失联:  [APP下载](https://txdk8.com)
                         
 
 <!--
