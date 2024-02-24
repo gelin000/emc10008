@@ -1,4 +1,12 @@
-### Hi there 👋
+# EMC易倍体育回家页 - 服务至上，永不失联
+![image](https://github.com/emc00123/emc00123/assets/161131716/7c9a2641-80ea-4bcf-9aa9-06c69f78449d)
+
+
+### EMC易倍体育-永不失联:  [PC官网](https://jnsk10.com)
+                        jnsk10.com
+### EMC易倍体育-永不失联:  [H5官网](tx6dj.com)
+### EMC易倍体育-永不失联:  [APP下载](txdk8.com)
+                        
 
 <!--
 **emc10008/emc10008** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
